@@ -1,5 +1,5 @@
 # 💫 About Me:
-hi! I'm a beginner programmer, and I love this profession
+hi! I'm gay an pidor you got fuck me a beginner programmer, and I love this profession
 
 
 # 💻 Tech Stack:
